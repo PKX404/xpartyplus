@@ -1,1 +1,1 @@
-# xpartyplus
+# XParty+\n\nIndependent XParty+ R1 by PKX404.\n
